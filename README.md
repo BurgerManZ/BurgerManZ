@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BurgerManZ, and i hope you like here but you have no chocie if you dont, jk dont call the cops
 - 👀 I’m interested in Coding sites unblockers and other stuff like that
-- 🌱 Coding, and i hope i can code by the end 2024!
+- 🌱 Im learning Code, and i hope i can code by the end of 2024!
 - 💞️ I’m looking to work bymyself for now.
 - 📫 Email Bailejos000777@gmaill.com
 
